@@ -1,6 +1,6 @@
-# Warmer Welcome
+# BlueSky
 
-![Warmth](https://i.ytimg.com/vi/_5ZTdWfgoDA/maxresdefault.jpg)
+![Warmth](https://cdn0.vox-cdn.com/thumbor/RPNLFzsainmczU3PrE1C2J2FiJs=/cdn0.vox-cdn.com/uploads/chorus_asset/file/2487158/shutterstock_156474890.0.jpg)
 
 ## Welcome
 
